@@ -2,6 +2,12 @@
 
 
 
+
+** nonsharing/voidsharing banhammer gachakoi, dni doubles, hide me please.
+![!](https://media1.tenor.com/m/1Ez-d49jeToAAAAd/phighting-hyperlaser.gif)
+
+Ignore whitehammer sigh. ill replace it soon, Gif not mine.
+
 <!--
 **hyperlvser/hyperlvser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
