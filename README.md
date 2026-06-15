@@ -1,12 +1,5 @@
-![l](https://64.media.tumblr.com/1c737d24c5338a5daa8d6ae99f067cdf/a8c0b333fc7459e4-e0/s2048x3072/d5eba8505225cd0f7c6d2fda1c59373813e2a32b.pnj)
+<img width="2048" height="1523" alt="image" src="https://github.com/user-attachments/assets/f93c367a-0303-44c8-b016-833a31146dd0" />
 
-
-
-
-** nonsharing/voidsharing banhammer gachakoi, dni doubles, hide me please.
-![!](https://media1.tenor.com/m/1Ez-d49jeToAAAAd/phighting-hyperlaser.gif)
-
-Ignore whitehammer sigh. ill replace it soon, Gif not mine.
 
 <!--
 **hyperlvser/hyperlvser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
